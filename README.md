@@ -1,1 +1,1 @@
-# GroupProjectSubmission-Group_1-
+# Group_Project_Submission-Group_1-
